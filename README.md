@@ -1,0 +1,1 @@
+basic eggless chocolate cake recipe made with whole wheat flour. The cake is soft and moist and can be used a base cake for various chocolate frostings.
